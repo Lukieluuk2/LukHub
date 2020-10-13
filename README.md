@@ -6,4 +6,4 @@ Must agree with ToS before using my script.
 2. The script may be discontinued at any time.
 3. You agree with us logging the game the script is executed in
 
-Thanks for using LukHub, if you experience any problems dm me Lukie#8618
+Thanks for using LukHub, if you experience any problems Direct Message The Following: Lukie#8618 or NexureFilms#1111
